@@ -1,0 +1,1 @@
+The "menstrual management record" is a free and practical application designed for women. This application is able to express the possibility of pregnancy and the next physiological date with a cute chart, and it can be used to manage and record the physiological cycle. All kinds of convenience for women are provided free of charge.
